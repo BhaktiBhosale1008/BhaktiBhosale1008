@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BhaktiBhosale1008
+- 👀 I’m interested in learning new things and having great opportunity to contribute some of my to the tech industry.
+- 🌱 I’m currently learning python
+- 📫 How to reach me ... bhaktibhosale10112gmail.com
+- 😄 Pronouns: sheHher
